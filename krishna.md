@@ -18,15 +18,9 @@ this is ebwmsadfkdsfkjsafhkas
 
 Playing fluteasdn
 
-Lifting Govardhan Hill
 
-His love and devotion story with Radha
-
-⚔️ asdsdaf asdfsdaf asdf
-
-Krishna played a very important role in the epic Mahabharata.
-
-He was the guide and charioteer of Arjuna in the Kurukshetra war.
+this line we ger conflict 
+He was the guide and nes  charioteer of Arjuna in the Kurukshetra war.
 📜 Bhagavad Gita
 
 Krishna gave spiritual knowledge to Arjuna in the Bhagavad Gita.
