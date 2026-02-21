@@ -26,7 +26,7 @@ He was the guide and nes  charioteer of Arjuna in the Kurukshetra war.
 Krishna gave spiritual knowledge to Arjuna in the Bhagavad Gita.
 
 Main teachings:aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-
+sadf asdf
 Do your duty (Karma)
 
 Don’t worry about results
