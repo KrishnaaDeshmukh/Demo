@@ -28,3 +28,16 @@ His love and devotion story with Radha
 Krishna played a very important role in the epic Mahabharata.
 
 He was the guide and charioteer of Arjuna in the Kurukshetra war.
+📜 Bhagavad Gita
+
+Krishna gave spiritual knowledge to Arjuna in the Bhagavad Gita.
+
+Main teachings:
+
+Do your duty (Karma)
+
+Don’t worry about results
+
+Be devoted (Bhakti)
+
+Control your mind
