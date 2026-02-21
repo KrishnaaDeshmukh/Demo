@@ -33,4 +33,5 @@ Don’t worry about results
 
 Be devoted (Bhakti)
 
-Control your mind
+Control your mindnew line added 
+int ihsi
