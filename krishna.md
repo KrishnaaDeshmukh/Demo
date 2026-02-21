@@ -14,16 +14,23 @@ He was born in prison because his uncle Kansa feared a prophecy that Krishna wou
 🎵 Childhood Stories
 
 Krishna is famous for:
+this is ebwmsadfkdsfkjsafhkas 
 
-Stealing butter (Makhan Chor 😄)
+Playing fluteasdn
 
-Playing flute
 
-Lifting Govardhan Hill
+this line we ger conflict 
+He was the guide and nes  charioteer of Arjuna in the Kurukshetra war.
+📜 Bhagavad Gita
 
-His love and devotion story with Radha
+Krishna gave spiritual knowledge to Arjuna in the Bhagavad Gita.
 
-⚔️ Role in Mahabharata
-aklsdjfsda
-sdfsda
-asdfsadfwar.
+Main teachings:aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+
+Do your duty (Karma)
+
+Don’t worry about results
+
+Be devoted (Bhakti)
+
+Control your mind
