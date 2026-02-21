@@ -24,7 +24,6 @@ Lifting Govardhan Hill
 His love and devotion story with Radha
 
 ⚔️ Role in Mahabharata
-
-Krishna played a very important role in the epic Mahabharata.
-
-He was the guide and charioteer of Arjuna in the Kurukshetra war.
+aklsdjfsda
+sdfsda
+asdfsadfwar.
